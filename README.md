@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Spiderxxxxxxxxxxxxxxx
+- 👀 I’m interested in 3d printing and Cnc machines 
+- 🌱 I’m currently learning mechanical engineering 
+- 📫 How to reach me sztorres10@gmail.com _ https://www.facebook.com/sabry.zaytoun/
